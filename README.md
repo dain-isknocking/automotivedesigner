@@ -1,2 +1,1 @@
-Dain Kim
-Design portfolio
+Dain's automotive design portfolio
